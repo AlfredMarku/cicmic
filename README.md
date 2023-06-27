@@ -4,6 +4,7 @@ It is so simple game.
 Builded using only HTML CSS and JavaScript.
 You can download and edit freely by yourself.
 Please if you have suggestion you can edit with your own suggestions
+email kontakt@loralf.al
 
 Best 
 Alfred Marku
