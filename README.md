@@ -6,6 +6,6 @@ You can download and edit freely by yourself.
 Please if you have suggestion you can edit with your own suggestions
 email kontakt@loralf.al
 www.loralf.al
-
+Luaj lojen ketu : https://loralf.al/projects/games/cicmic/index.html
 Best 
 Alfred Marku
